@@ -3,7 +3,7 @@
 电影天堂网是一个专注于提供影视资源的在线平台，拥有丰富的电影、电视剧、动漫、综艺等资源。该网站成立于2005年，经过多年的发展，已经成为国内知名的影视资源网站。电影天堂网以“用心去感动用户”为口号，致力于为用户提供免费、便捷的在线影视观看和下载服务。其页面简洁大方，内容丰富，涵盖多种类型和地区的影视作品，包括动作片、喜剧片、科幻片、爱情片、战争片、惊悚片、剧情片、大陆剧、港台剧、欧美剧、日韩剧等。
 
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/14414.html" target="_blank" ><strong>电影天堂网最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/yingshi" target="_blank" ><strong>影视在线看</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://yingshi.xxsnav.com/" target="_blank" ><strong>影视网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
